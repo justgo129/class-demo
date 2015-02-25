@@ -1,1 +1,1 @@
-Yesterday
+YESTERDAY
